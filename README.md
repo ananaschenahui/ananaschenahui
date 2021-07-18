@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Rebe Boruch Nedeler
 - 👀 I’m interested in брання в рота
 - 🌱 I’m currently learning як піти нахуй
-- 💞️ I’m looking to collaborate on лисички-макрички
+- 💞️ I’m looking to collaborate on лисички-макричьки
 - 📫 How to reach me: гукнути в парашу
 
 <!---
